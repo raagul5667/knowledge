@@ -1,0 +1,91 @@
+> **Cholas**
+
+**Introduction**
+
+The Cholas who ruled from the ninth century to thirteenth century CE
+(850 – 1279 CE) played a very important part in the political and
+cultural history of South India. The core region of their control-
+Cholamandalam - was the area around Tanjore upto East Coast, the
+Coromandal of later times. The Chola period of south Indian history with
+its impressive corpus of inscriptions has been widely discussed in
+recent years. There have been diverse theories and many new
+interpretations drew less on political authority and more on
+institutions established at this time, together with the articulations
+of cultural forms. The standards established in society, religion and
+fine arts during this period were regarded as classical and came to
+dominate the patterns of the living in the south and also influenced and
+modified at certain levels in the patterns existing elsewhere in
+Peninsula. There was also an active intervention in south-east Asia to a
+greater degree than before, in the commerce and in its cultural forms.
+
+**Early** **Cholas**
+
+The Cholas, as rulers, are known to have existed from remote antiquity.
+They are mentioned, for the first time in II and XIII Rock Edicts of
+Ashoka along with the Pandyas and Cheras. According to this inscription
+the Cholas were a friendly power in the south beyond the pale of Mauryan
+Suzerainty. The Sangam literature also furnishes much on Chola
+chiefdoms. Karikala Chola was the greatest early Chola king. He is
+credited with the foundation of the city of Puhar at the mouth of river
+Cauvery and with the construction of an embankment along that river. He
+also showed much interest in the land reclamation and in improving the
+irrigational facilities. Though Chola kings are known from the Mauryan
+period, their post-Sangam history is unclear, as is their connection
+with the Cholas of early medieval times.
+
+**Imperial** **Cholas**
+
+The founder and first king of the Imperial Chola dynasty of Tanjore was
+Vijayalaya (850 -871 CE) He established his power in the area around
+Uraiyur, captured Tanjore from the Muttaraiyar chieftains, an ally of
+the Pandyas and extended his kingdom along the lower Kaveri. Vijayalaya
+accepted the over lordship of Pallavas and began his rule around 850 CE.
+Vijayalaya is credited with founding of the temple of Nishumbhasudini.
+
+**Aditya** **I** **(871-907)**
+
+The successor of Vijayalaya, achieved significant military successes and
+expanded the Chola kingdom. He defeated the last Pallava overlord
+Aparajita in 893. This victory gave him control over Tondamandalam.
+Thereafter, he went on to conquer Kongudesa (Corresponding to Coimbatore
+and Salem) from the Pandyas. He also claims to have captured Talakad,
+
+capital of the Western Gangas. Aditya I entered into matrimonial
+alliance with the Pallavas by marrying Pallava princess.
+
+**Parantaka** **I** **(907** **-** **953** **CE)**
+
+The first important ruler of the Chola dynasty, Parantaka I, came to
+power and ruled almost half a century. He was considered the real
+founder of the Chola empire in south India. He secured the northern
+frontier of the kingdom by campaigning against the Pandyas and capturing
+their capital Madurai after which he assumed the title of ‘Maduraikonda’
+(Conqueror of Madurai). Rajasimha, the Pandyan ruler who faced defeat at
+the hands of Parantaka, left his kingdom and took shelter in the court
+of the Ceylonese king. He defeated the combined forces of the Pandyas
+and the king of Srilanka in the battle of Vellur, and the Pandyan
+territories fell into Chola hands. During the closing years of Parantaka
+I, the Rashtrakuta king Krishna III defeated Parantaka in the famous
+battle of Takkolam near Arkonam in 949 CE and succeeded in occupying the
+large part of the northern half of the Chola empire.
+
+Parantaka I was a great builder of temples. He also provided the Vimana
+of the famous Nataraja temple at Chidambaram with a golden roof. The two
+famous Uttarameruru inscriptions that give a detailed account of the
+village administration under the Cholas belong to his reign. After the
+death of Parantaka 953 CE the history of Cholas for the next three
+decades in which a succession of weak kings brought about a decline in
+the power of the Cholas.
+
+The Chola power was firmly established with the accession of Rajaraja I
+and his son and successor Rajendra I, which allowed about half a century
+for the Chola kingdom to beconsolidated and stabilized.
+
+**Rajaraja** **I** **(985** **CE** **–** **1014** **CE)**
+
+The Chola power reached its peak during the reign of Arumolivarman, who
+assumed the title Rajaraja I on his accession to thrown. It was he who
+laid the foundation of a mighty empire and also provided an excellent
+administrative set up to it. He was the son of Parantaka II. His
+military campaigns and the regions occupied and annexed into his empire
+are recorded in his Tanjore inscriptions.
